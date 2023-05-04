@@ -1,0 +1,2 @@
+# filtrodefreefire
+fiafhusfosufsdfsfsghrsygres8g8e8ugf8ugu8sfhsugs8g8asguseufusfu8aru8rgu89au8sfu8
